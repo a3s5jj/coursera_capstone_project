@@ -31,4 +31,4 @@ Casual riders prefer weekends and longer trips — suggesting potential membersh
 
 ## 📬 Contact
 
-For questions or collaboration: [al;johncompendio@gmail.com]
+For questions or collaboration: [aljohncompendio@gmail.com]
